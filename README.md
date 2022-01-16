@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @khfiyya
+- 🤍 Easy going, learning, learning and learning
+- 👀 I’m interested in Data Enthuasiast
+- 🌱 I’m currently learning AI, ML, DL, NLP like that.
+- 💞️ I’m looking to collaborate on everywhere
+- 📫 U can reach me at @khofiyyamulia@gmail.com
